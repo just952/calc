@@ -8,4 +8,4 @@ fffffffff
 해해해
 ㅁㄴㅇㄻㄴㅇㄹ
 
-3rd
+3rd~
